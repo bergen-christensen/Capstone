@@ -50,9 +50,9 @@ Visuals
 
 https://docs.google.com/presentation/d/1ahC31qYy05f3O3vm1d8PVFKXpzpKjkLAKjGiYedlL0k/edit?slide=id.g2494cf789d9\_0\_65#slide=id.g2494cf789d9\_0\_65
 
+Folder of charts and graphs on GitHub 
+
 Contact
 
 Bergen Christensen • Bergen.christensen@gmail.com • www.linkedin.com/in/bergen-christensen
-
-
 
